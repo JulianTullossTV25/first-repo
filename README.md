@@ -56,3 +56,7 @@ Pust ot pobedy k pobede vedet!
 Знамя советское, знамя народное 
 Пусть от победы к победе ведет!
 
+
+Sigmaboy
+
+the heck!?
